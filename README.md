@@ -12,3 +12,6 @@ https://toomuchmedia.online/
 https://hornokplease.xyz/
 https://saloon.wtf/
 https://bingebrowse.net/
+
+Type of reading
+https://readyourcolor.com/assessment
